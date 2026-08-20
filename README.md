@@ -5,3 +5,7 @@
 <img width="2000" height="9" alt="Image" src="https://github.com/user-attachments/assets/b0ef1ffa-4707-498a-887b-d22c72dee14d" />
 </p>
 <p align="center">
+𝗩incᧉ 　 𝒮᥎en 　  , 　 i like history a lot
+[frontline](https://frontline.straw.page)
+
+```
