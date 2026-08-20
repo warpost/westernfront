@@ -6,6 +6,5 @@
 </p>
 <p align="center">
 𝗩incᧉ 　 𝒮᥎en 　  , 　 i like history a lot
-[frontline](https://frontline.straw.page)
 
 ```
